@@ -1,0 +1,2 @@
+# fajarinstabot
+FASTING FOLLOWERE
